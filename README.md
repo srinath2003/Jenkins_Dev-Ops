@@ -1,0 +1,1 @@
+konjam summa iruda
